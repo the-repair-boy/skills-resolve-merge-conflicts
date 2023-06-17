@@ -1,3 +1,3 @@
-# References
+Harmony follows where peace reigns
 
-* octocat 1 😈
+
